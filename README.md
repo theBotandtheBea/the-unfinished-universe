@@ -1,4 +1,4 @@
-# Future Farm — Open Research in Constructive Consequence
+# the unfinished universe
 
 **Public working research | 17 November 2026 | Open questions, not established conclusions**
 
